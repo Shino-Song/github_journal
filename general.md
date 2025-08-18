@@ -12,6 +12,6 @@ Speaking of Korean, classes are going well. Well, I mean progress is being made,
 
 That will be it for today's entry.
 
-~Shino~
+~Shino
 
-~~~
+~~~~~
