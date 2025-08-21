@@ -29,3 +29,18 @@ Honetly wasted today as well after work. Couldn't get anything personally produc
 
 ~~~~
 ~~~~
+
+Aug 22, 2025. 3am~ish.
+
+So the tilde does a weird code block thing. That is interesting and makes a strange border, but you know what? I think I like it, so I'll keep it.
+
+No entry yesterday. Was kinda outta it and busy doing some photo edits. Honestly, I should edit the other photos I took today, but I think I will procrastinate it to the weekend. We had some events at my work today, it was fun in some ways, but I'll have to make up lost time in other places since I didn't have that much forewarning for it. I'll make it work, but it definitley would be nice if the relative semesters had all the "we are doing shit this day" actually posted before the semester starts so that I can account for them. Red days are easy enough since they just are there long in advance. Regardless, just complaining about things I can account for without too much hassle on my end. Students might cry over extra HW or classes we need to cut down discussion time on, but we gotta do what we gotta do.
+
+Can't say much else is going on. I've had the consideration of signing up for dating apps again. I know it will end pointlessly, but it is kinda funny seeing what bots there are every few years, and Korea has a strange batch when it comes to actual people who join the apps. Other than that, finally got a replacement battery on the way for my laptop! Hopefully it arrives without trouble.
+
+Anyways, I'll call it a night for this one here.
+
+~Shino
+
+~~~~
+~~~~
