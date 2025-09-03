@@ -44,3 +44,14 @@ Anyways, I'll call it a night for this one here.
 
 ~~~~
 ~~~~
+
+Spet 3, 2025. 23:00~abouts
+
+Well. I kinda got distracted for sure. Coding learning has been a touch on hold, but other than that, things have been pretty standard. Got some stuff sorted out, so I might look into getting back into streaming. I've been hesitant on it because it is never fun to go on and off of it and most games I've been playing have just been for me to relax games XD but ya. Not sure what I'll play, maybe No Mans Sky or Battlefield. I like less story heavy games for streams so that I can interact more with any chatters rather than be fully focused on the game and end up ignoring chats.
+
+But with that, I'll call it here. Back to the grind~!
+
+~Shino
+
+~~~~
+~~~~
