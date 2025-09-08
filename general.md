@@ -55,3 +55,16 @@ But with that, I'll call it here. Back to the grind~!
 
 ~~~~
 ~~~~
+
+Spet 8, 2025. 22:10-something
+
+Almost done with level 2 of TTMIK! Still feeling a little iffy on vocabulary, and speaking in general, but hopefully that cures with time. Biggest factor is the nervousness I get in my lessons. It is much worse in a group setting, but while I can use Korea in any non-learning situation with little issue, the moment I'm in my lessons I get major stage frieght of sorts. It is honeslty quite strange as it continues even in one on one lessons. Just the standard "oh, lesson has started? Well, all my practice suddenly chooses to call in sick." The lessons still are beneficial to my learning, and I have the dedication to push through. It is just a weird self conciousness thing I hope gets better eventually.
+
+Beyond that, I've been starting a few series that I've had on my backlog for awhile. Today I just watched the old school Planet Of The Apes movie. It was pretty good. Been looking for some new K-dramas to watch and practice my listening with. Hopefully will find some fantasy/sci-fi/legal drama stuff since those are my personal faves.
+
+And with that I will bid you a goodnight. Gunna read some Webtoons, watch a bit of YT, get some studying in, and then probably passout sometime around 5!
+
+~Shino
+
+~~~~
+~~~~
