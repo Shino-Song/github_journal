@@ -68,3 +68,14 @@ And with that I will bid you a goodnight. Gunna read some Webtoons, watch a bit 
 
 ~~~~
 ~~~~
+
+Sept 15, 2025. Midnight, not a sound from the pavement, has the moon lost her memory, she is smiling alone. (damn, I need to find a performance of Cats to attend soon XD)
+
+Not too much going on, but I have noticed my in my typing somehow I make "sept" into "spet" the past couple of entries ㅋㅋㅋ not even sure how I typoed that one twice. Other than that, been mainly focusing on some side projects and getting a bit back into coding again. Not much to really write home about the past week. Mostly smooth sailing in my personal life.
+
+Well, with that I'll probably just leave it here.
+
+~Shino
+
+~~~~
+~~~~
